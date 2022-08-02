@@ -1,5 +1,5 @@
 
-# [`♭ream`](index.html)
+# [`♭` <sup>day</sup>](index.html)
 
 # [graf](../../generate) your [dream](https://webmural.com/dream)
 
